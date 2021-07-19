@@ -3,4 +3,3 @@
 ![3](https://user-images.githubusercontent.com/66682862/126150442-ee8d9ab9-689a-4bf4-8fcd-0a5c39f3f373.jpg)
 ![4](https://user-images.githubusercontent.com/66682862/126150446-f14a342d-d5f1-4e50-8beb-58e644a8b5dd.jpg)
 ![5](https://user-images.githubusercontent.com/66682862/126150454-4d3ba108-de4b-4495-a533-cae0a2bf151b.jpg)
-![Kuis_IMK_L_672018025](https://user-images.githubusercontent.com/66682862/126150456-6afb6a6d-4ea9-4798-b10a-0fc0dff8eb2f.png)
